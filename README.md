@@ -34,4 +34,4 @@ I'm fine with C+h when im not with them though!
 
 [Strawpage](https://junipilly.straw.page/) [Artfight](https://artfight.net/~Junipilly) [twitter](https://x.com/junipilly)
 
-![pup](https://adriansblinkiecollection.neocities.org/stamps/a35.png)
+![dablinkie](https://pixelsafari.neocities.org/blinkies/dablinkie.gif)
