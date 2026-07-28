@@ -29,3 +29,9 @@ I'm fine with C+h when im not with them though!
 ![anti](https://adriansblinkiecollection.neocities.org/g44.gif) ![s](https://adriansblinkiecollection.neocities.org/q1.gif) ![cat](https://adriansblinkiecollection.neocities.org/s3.gif) ![aj](https://adriansblinkiecollection.neocities.org/d1.gif) 
 
 ![woolf](https://i.pinimg.com/736x/b6/fd/4b/b6fd4b30bc85caf512ef35aaa55579d7.jpg)
+
+![banner](https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=3fc8f5cd)
+
+[Strawpage](https://junipilly.straw.page/) [Artfight](https://artfight.net/~Junipilly) [twitter](https://x.com/junipilly)
+
+![pup](https://adriansblinkiecollection.neocities.org/stamps/a35.png)
