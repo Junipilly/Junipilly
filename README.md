@@ -8,7 +8,7 @@
 
 ![b](https://adriansblinkiecollection.neocities.org/buttons/a101.jpg)
 
-Multifandom artist & Cosplayer!! Bit socially awkward </3 usually seen sitting with @sweetvalentinescandy or our other friend!!
+Multifandom artist & Cosplayer!! Bit socially awkward </3 usually seen sitting with [@sweetvalentinescandy](https://github.com/sweetvalentinescandy) or our other friend!!
 I'm fine with C+h when im not with them though! 
 
 ![wolf](https://i.pinimg.com/736x/22/59/a1/2259a11de39aacf232212991c5c2957a.jpg)
