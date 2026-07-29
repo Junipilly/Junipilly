@@ -20,6 +20,8 @@ please DNC! i put a lot of effort into these skins!!
 
 i also do not roleplay so apologies if i ignore you if you approach me to do so!
 
+i would rather not accept friend reqs from people i havent actually interacted a lot with on ponytown so if i decline that does not mean i hate you!
+
 *Check out my art at the bottom :D!!* ↓
 
 ### ⁺˚⋆｡°✩₊✩°｡⋆˚⁺
