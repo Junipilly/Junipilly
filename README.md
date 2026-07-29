@@ -16,6 +16,10 @@ Bit socially awkward </3 usually seen sitting with [@sweetvalentinescandy](https
 
 I'm fine with C+h when im not with them though! 
 
+please DNC! i put a lot of effort into these skins!!
+
+i also do not roleplay so apologies if i ignore you if you approach me to do so!
+
 *Check out my art at the bottom :D!!* ↓
 
 ### ⁺˚⋆｡°✩₊✩°｡⋆˚⁺
@@ -107,3 +111,5 @@ I'm fine with C+h when im not with them though!
 ![TAYA](https://pbs.twimg.com/media/HDkvzMObEAEtHJ2?format=jpg&name=large)
 
 </details>
+
+# ✩
