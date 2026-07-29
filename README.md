@@ -2,7 +2,7 @@
 
 # 🐺 ![zzz](https://pixels.crd.co/assets/images/gallery61/99df91a2.gif?v=29416114) 
 
-![name](https://txt.1001fonts.net/img/txt/dHRmLjgwLjNjODc5MC5TblZ1YVhCcGJHeDUuMA/shooting-star-personal-use.regular.webp)
+![name](https://txt.1001fonts.net/img/txt/dHRmLjU0LjNjODc5MC5TblZ1YVhCcGJHeDUuMA/shooting-star-personal-use.regular.webp)
 
 ![banner](https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=3fc8f5cd)  
 
