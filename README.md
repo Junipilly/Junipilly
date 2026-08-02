@@ -1,6 +1,6 @@
 <div align = "center">
 
-# 🐺 ![zzz](https://pixels.crd.co/assets/images/gallery61/99df91a2.gif?v=29416114) 
+# ![WOLFSLIDE](https://static.wikia.nocookie.net/cookierunkingdom/images/c/c9/Cookie0044s02-slide_trans_back.gif/revision/latest?cb=20230725031313)
 
 ![name](https://txt.1001fonts.net/img/txt/dHRmLjU0LjNjODc5MC5TblZ1YVhCcGJHeDUuMA/shooting-star-personal-use.regular.webp)
 
@@ -34,6 +34,8 @@ i would rather not accept friend reqs from people i havent actually interacted a
 ![wol](https://github.com/user-attachments/assets/33481d09-9b60-43d2-af6c-98699a1ce806)
 
 ![](https://komarev.com/ghpvc/?username=Junipilly&color=42a79c&style=plastic&label=PAWESOME+VIEWS)
+
+![WOLFIE](https://static.wikia.nocookie.net/cookierunkingdom/images/3/34/Cookie0044-idle_trans.gif/revision/latest?cb=20210831210737)
 
 ![divider](https://pixelsafari.neocities.org/dividers/more/trees3.gif)
 
