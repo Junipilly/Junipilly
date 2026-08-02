@@ -4,7 +4,9 @@
 
 ![name](https://txt.1001fonts.net/img/txt/dHRmLjU0LjNjODc5MC5TblZ1YVhCcGJHeDUuMA/shooting-star-personal-use.regular.webp)
 
-![banner](https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=3fc8f5cd)  
+![banner](https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=3fc8f5cd) 
+
+![wolf1](https://64.media.tumblr.com/9fe578a1f45f48e289ab90a3d8e907fd/1b4e0eccec5e8bcf-4b/s400x600/17699d34c48407cce369f0fa44edad032bc1c752.pnj) ![wolf2](https://64.media.tumblr.com/c2dca313c94e7e9465bf16316398f915/1b4e0eccec5e8bcf-a4/s400x600/eee4a0ce67020642f7d233d4235a20055ec763f1.pnj)
 
 ![b](https://adriansblinkiecollection.neocities.org/buttons/a101.jpg)
 
@@ -31,7 +33,7 @@ i would rather not accept friend reqs from people i havent actually interacted a
 
 ![wol](https://github.com/user-attachments/assets/33481d09-9b60-43d2-af6c-98699a1ce806)
 
-![](https://komarev.com/ghpvc/?username=Junipilly&color=42a79c&style=plastic&label=PROFILE+VIEWS)
+![](https://komarev.com/ghpvc/?username=Junipilly&color=42a79c&style=plastic&label=PAWESOME+VIEWS)
 
 ![divider](https://pixelsafari.neocities.org/dividers/more/trees3.gif)
 
@@ -115,5 +117,7 @@ i would rather not accept friend reqs from people i havent actually interacted a
 ![TAYA](https://pbs.twimg.com/media/HDkvzMObEAEtHJ2?format=jpg&name=large)
 
 </details>
+
+![wuuah](https://64.media.tumblr.com/d6a58a0ed37de161e5e9f5f5344c7c83/1b4e0eccec5e8bcf-45/s400x600/c0f30fc70edcae601a467568fe23ef0d2ef245ea.pnj) ![wiaij](https://64.media.tumblr.com/7e7d75d88d7975d121ca1358c4cdf335/1b4e0eccec5e8bcf-14/s400x600/65b38bbfa28b3cdbf0eab5ecfbb4853c4b199643.pnj)
 
 # ✩
