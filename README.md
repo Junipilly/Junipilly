@@ -31,6 +31,8 @@ i would rather not accept friend reqs from people i havent actually interacted a
 
 ![wol](https://github.com/user-attachments/assets/33481d09-9b60-43d2-af6c-98699a1ce806)
 
+![](https://komarev.com/ghpvc/?username=Junipilly&color=42a79c&style=plastic&label=PROFILE+VIEWS)
+
 ![divider](https://pixelsafari.neocities.org/dividers/more/trees3.gif)
 
 ![werewolf](https://adriansblinkiecollection.neocities.org/m10.gif) ![les](https://64.media.tumblr.com/1775039c2fe0288d3fae78cfd00a685f/27fd15063e81f2e1-14/s250x400/1d21a1a8b759daeafcc269f25c4a39e965d14b3e.gifv) ![aro](https://64.media.tumblr.com/c4a361e5a129d0fc7212a45c26431f19/27fd15063e81f2e1-e6/s250x400/eb8d07560e9e0775d3a1ff1f25f9caba90cd7c2b.gifv)
