@@ -4,19 +4,13 @@
 
 ![name](https://txt.1001fonts.net/img/txt/dHRmLjU0LjNjODc5MC5TblZ1YVhCcGJHeDUuMA/shooting-star-personal-use.regular.webp)
 
-![banner](https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=3fc8f5cd) 
-
-![wolf1](https://64.media.tumblr.com/9fe578a1f45f48e289ab90a3d8e907fd/1b4e0eccec5e8bcf-4b/s400x600/17699d34c48407cce369f0fa44edad032bc1c752.pnj) ![wolf2](https://64.media.tumblr.com/c2dca313c94e7e9465bf16316398f915/1b4e0eccec5e8bcf-a4/s400x600/eee4a0ce67020642f7d233d4235a20055ec763f1.pnj)
 
 ![b](https://adriansblinkiecollection.neocities.org/buttons/a101.jpg)
 
 ✩
+<img width="2752" height="2064" alt="werewolfgithub" src="https://github.com/user-attachments/assets/8d30fd45-fa86-4f84-8b80-5e6070f20241" />
 
-Multifandom artist & Cosplayer!! 
-
-Bit socially awkward </3 usually seen sitting with [@sweetvalentinescandy](https://github.com/sweetvalentinescandy) or our other friend!!
-
-I'm fine with C+h when im not with them though! 
+usually seen sitting with [@sweetvalentinescandy](https://github.com/sweetvalentinescandy) or our other friend!! 
 
 please DNC! i put a lot of effort into these skins!!
 
