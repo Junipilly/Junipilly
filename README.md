@@ -3,6 +3,9 @@
 
 
 <img width="2752" height="2064" alt="werewolfgithub" src="https://github.com/user-attachments/assets/8d30fd45-fa86-4f84-8b80-5e6070f20241" />
+
+
+$\color{#292e7b}\textsf{It's}$ $\color{#2e4b8e}\textsf{no}$ $\color{#2d6296}\textsf{surprise}$ $\color{#2d74a8}\textsf{to} $\color{#20a4c2}\textsf{me,}$ $\color{#d6c278}\textsf{I am}$ $\color{#ccc58c}\textsf{my}$ $\color{#d8d092}\textsf{own}$ $\color{#d8d092}\textsf{worst}$ $\color{#5095bb}\textsf{enemy}$
  
 ###### $\color{#9db4bb}\textsf{please DNC! i put a lot of effort into these skins!!}$
 
