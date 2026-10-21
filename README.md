@@ -15,7 +15,7 @@
 [<img width="248" height="248" alt="creamsodabea(1)" src="https://github.com/user-attachments/assets/b00bb8ba-d4ab-4f66-82d1-a338b23c5e87" />](https://github.com/sweetvalentinescandy)
 
 
-###### $\color{#1c65ad}\textsf{*Check out my art at the bottom :D!!* ↓}$
+###### *Check out my art at the bottom :D!!* ↓}$
 
 ### ⁺˚⋆｡°✩₊✩°｡⋆˚⁺
 ### ✩
