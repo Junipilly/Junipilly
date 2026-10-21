@@ -5,13 +5,15 @@
 <img width="2752" height="2064" alt="werewolfgithub" src="https://github.com/user-attachments/assets/8d30fd45-fa86-4f84-8b80-5e6070f20241" />
 
 
-$\color{#292e7b}\textsf{It's}$ $\color{#2e4b8e}\textsf{no}$ $\color{#2d6296}\textsf{surprise}$ $\color{#2d74a8}\textsf{to}$\color{#20a4c2}\textsf{me,}$ $\color{#d6c278}\textsf{I am}$ $\color{#ccc58c}\textsf{my}$ $\color{#d8d092}\textsf{own}$ $\color{#d8d092}\textsf{worst}$ $\color{#5095bb}\textsf{enemy}$
+$\color{#292e7b}\textsf{It's}$ $\color{#2e4b8e}\textsf{no}$ $\color{#2d6296}\textsf{surprise}$ $\color{#2d74a8}\textsf{to}$ $\color{#20a4c2}\textsf{me,}$ $\color{#58cbc3}\textsf{I am}$ $\color{#d6c278}\textsf{my}$ $\color{#ccc58c}\textsf{own}$ $\color{#d8d092}\textsf{worst}$ $\color{#e6de9d}\textsf{enemy}$
+
+![wolf](https://64.media.tumblr.com/e6bcd1a9e2ef466555dfa28368a758d8/60198fbe7c838325-3c/s1280x1920/0ac89fc23eb6f200e0f68c7880db995ce90e641d.png)
  
-###### $\color{#9db4bb}\textsf{please DNC! i put a lot of effort into these skins!!}$
+##### $\color{#292e7b}\textsf{please DNC! i put a lot of effort into these skins!!}$
 
-###### $\color{#9db4bb}\textsf{i also do not roleplay so apologies if i ignore you if you approach me to do so!}$
+##### $\color{#2e4b8e}\textsf{i also do not roleplay so apologies if i ignore you if you approach me to do so!}$
 
-###### $\color{#9db4bb}\textsf{i would rather not accept friend reqs from people i havent actually interacted a lot with on ponytown so if i decline that does not mean i hate you!}$
+##### $\color{#2d6296}\textsf{i would rather not accept friend reqs from people i havent actually interacted a lot with on ponytown so if i decline that does not mean i hate you!}$
 
 [<img width="248" height="248" alt="creamsodabea(1)" src="https://github.com/user-attachments/assets/b00bb8ba-d4ab-4f66-82d1-a338b23c5e87" />](https://github.com/sweetvalentinescandy)
 
