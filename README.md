@@ -3,7 +3,8 @@
 
 ![b](https://adriansblinkiecollection.neocities.org/buttons/a101.jpg)
 
-✩
+### ✩
+
 <img width="2752" height="2064" alt="werewolfgithub" src="https://github.com/user-attachments/assets/8d30fd45-fa86-4f84-8b80-5e6070f20241" />
  
 ###### $\color{#9db4bb}\textsf{please DNC! i put a lot of effort into these skins!!}$
@@ -15,21 +16,14 @@
 [<img width="248" height="248" alt="creamsodabea(1)" src="https://github.com/user-attachments/assets/b00bb8ba-d4ab-4f66-82d1-a338b23c5e87" />](https://github.com/sweetvalentinescandy)
 
 
-###### *Check out my art at the bottom :D!!* ↓}$
-
-### ⁺˚⋆｡°✩₊✩°｡⋆˚⁺
-### ✩
+###### *Check out my art at the bottom :D!!* ↓
 
 ![](https://komarev.com/ghpvc/?username=Junipilly&color=42a79c&style=plastic&label=FURBALLS)
-
-![divider](https://pixelsafari.neocities.org/dividers/more/trees3.gif)
-
-![werewolf](https://adriansblinkiecollection.neocities.org/m10.gif) ![les](https://64.media.tumblr.com/1775039c2fe0288d3fae78cfd00a685f/27fd15063e81f2e1-14/s250x400/1d21a1a8b759daeafcc269f25c4a39e965d14b3e.gifv) ![aro](https://64.media.tumblr.com/c4a361e5a129d0fc7212a45c26431f19/27fd15063e81f2e1-e6/s250x400/eb8d07560e9e0775d3a1ff1f25f9caba90cd7c2b.gifv)
 
 
 <details>
 <summary>
-$\color{#3C8790}\textsf{𐂯 FANDOM FAVS 𐂯}$
+$\color{#1c65ad}\textsf{𐂯 FANDOM FAVS 𐂯}$
 </summary>
 
 ✮ ⋆ ˚｡𖦹 ⋆｡°✩
@@ -47,16 +41,18 @@ $\color{#3C8790}\textsf{𐂯 FANDOM FAVS 𐂯}$
 
 ✮ ⋆ ˚｡𖦹 ⋆｡°✩
 
-![banner](https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=3fc8f5cd)
+###### Atabook  𖦹  Strawpage  𖦹  Twitter 
 
-[atabook](https://junipilly.atabook.org/)
- [Strawpage](https://junipilly.straw.page/) [Artfight](https://artfight.net/~Junipilly) [twitter](https://x.com/junipilly)
+### ↓ ↓ ↓
+[![atabook](https://64.media.tumblr.com/ebff20166c7fbba5c0cb087f50db491d/7d162b24b8395bdd-79/s1280x1920/d1ed7106566ba28325e73b16627d60c26984f83c.png)](https://junipilly.atabook.org/) [![Strawpage](https://64.media.tumblr.com/3baa88e5745b33697bdf7ab6dabc868f/60198fbe7c838325-27/s1280x1920/4a3258d2a6a1f2802e8397a8ebb0b60b6a21e3fd.png)](https://junipilly.straw.page/) [![twitter](https://64.media.tumblr.com/2b4ed8ad88ba451e19c3f24c42f1cc25/60b115a4d694378e-04/s100x200/7a76ac9efe3da02eb7dc8492f736fad484f9396f.gifv)](https://x.com/junipilly)
 
 
-## MY ART + AUs 
-![meow](https://pixels.crd.co/assets/images/gallery22/0bf32423.gif?v=29416114)
+## $\color{#e2bf64}\textsf{MY ART + AUs}$
+
+ ![meow](https://pixelsafari.neocities.org/favicon/animals/dog/dog34.gif)
+ 
 <details>
-<summary>$\color{#3C8790}\textsf{WINGS OF FIRE X TADC }$</summary>
+<summary>$\color{#1c65ad}\textsf{WINGS OF FIRE X TADC }$</summary>
 
   ![POM](https://github.com/user-attachments/assets/88c6504c-0b47-4967-9fa7-8891cf22b5e7) $\color{#366da8}\textsf{POMNI - RAINWING}$
 
@@ -73,9 +69,9 @@ $\color{#3C8790}\textsf{𐂯 FANDOM FAVS 𐂯}$
 
 </details>
 
-![PAW](https://pixels.crd.co/assets/images/gallery52/a05ba7a0.gif?v=29416114)
+![PAW](https://supplies.ju.mp/assets/images/gallery05/8d588186_original.gif?v=2e2c9a9d)
 <details>
-<summary>$\color{#3C8790}\textsf{TADC X WARRIOR CATS}$</summary>
+<summary>$\color{#31afc6}\textsf{TADC X WARRIOR CATS}$</summary>
   
 ![POMM](https://images.artfight.net/character/6Q8mO3yyHduVGf3b0Bxj5fBwCqj0smXBhkYiDarH5SMNNsSSS8nOKWCFfX68.png?t=1784281865)
 
@@ -91,9 +87,9 @@ $\color{#3C8790}\textsf{𐂯 FANDOM FAVS 𐂯}$
 
 </details>
 
-![AWAH](https://pixels.crd.co/assets/images/gallery56/054b794a.gif?v=29416114)
+![AWAH](https://pixelsafari.neocities.org/favicon/nature/star/moon10.gif)
 <details>
-<summary>$\color{#3C8790}\textsf{EXTRA ART}$</summary>
+<summary>$\color{#1c65ad}\textsf{EXTRA ART}$</summary>
 
 ![GUPPY](https://pbs.twimg.com/media/HHue6HSaMAENM1r?format=jpg&name=large)
 
@@ -107,6 +103,8 @@ $\color{#3C8790}\textsf{𐂯 FANDOM FAVS 𐂯}$
 
 </details>
 
+
 ![wuuah](https://64.media.tumblr.com/d6a58a0ed37de161e5e9f5f5344c7c83/1b4e0eccec5e8bcf-45/s400x600/c0f30fc70edcae601a467568fe23ef0d2ef245ea.pnj) ![wiaij](https://64.media.tumblr.com/7e7d75d88d7975d121ca1358c4cdf335/1b4e0eccec5e8bcf-14/s400x600/65b38bbfa28b3cdbf0eab5ecfbb4853c4b199643.pnj)
 
+![werewolf](https://adriansblinkiecollection.neocities.org/m10.gif) ![les](https://64.media.tumblr.com/1775039c2fe0288d3fae78cfd00a685f/27fd15063e81f2e1-14/s250x400/1d21a1a8b759daeafcc269f25c4a39e965d14b3e.gifv) ![aro](https://64.media.tumblr.com/c4a361e5a129d0fc7212a45c26431f19/27fd15063e81f2e1-e6/s250x400/eb8d07560e9e0775d3a1ff1f25f9caba90cd7c2b.gifv)
 # ✩
