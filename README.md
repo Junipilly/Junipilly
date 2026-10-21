@@ -1,34 +1,26 @@
 <div align = "center">
 
-# ![WOLFSLIDE](https://static.wikia.nocookie.net/cookierunkingdom/images/c/c9/Cookie0044s02-slide_trans_back.gif/revision/latest?cb=20230725031313)
-
-![name](https://txt.1001fonts.net/img/txt/dHRmLjU0LjNjODc5MC5TblZ1YVhCcGJHeDUuMA/shooting-star-personal-use.regular.webp)
-
 
 ![b](https://adriansblinkiecollection.neocities.org/buttons/a101.jpg)
 
 ✩
 <img width="2752" height="2064" alt="werewolfgithub" src="https://github.com/user-attachments/assets/8d30fd45-fa86-4f84-8b80-5e6070f20241" />
+ 
+###### $\color{#9db4bb}\textsf{please DNC! i put a lot of effort into these skins!!}$
 
-usually seen sitting with [@sweetvalentinescandy](https://github.com/sweetvalentinescandy) or our other friend!! 
+###### $\color{#9db4bb}\textsf{i also do not roleplay so apologies if i ignore you if you approach me to do so!}$
 
-please DNC! i put a lot of effort into these skins!!
+###### $\color{#9db4bb}\textsf{i would rather not accept friend reqs from people i havent actually interacted a lot with on ponytown so if i decline that does not mean i hate you!}$
 
-i also do not roleplay so apologies if i ignore you if you approach me to do so!
+[<img width="248" height="248" alt="creamsodabea(1)" src="https://github.com/user-attachments/assets/b00bb8ba-d4ab-4f66-82d1-a338b23c5e87" />](https://github.com/sweetvalentinescandy)
 
-i would rather not accept friend reqs from people i havent actually interacted a lot with on ponytown so if i decline that does not mean i hate you!
 
-*Check out my art at the bottom :D!!* ↓
+###### $\color{#1c65ad}\textsf{*Check out my art at the bottom :D!!* ↓}$
 
 ### ⁺˚⋆｡°✩₊✩°｡⋆˚⁺
 ### ✩
 
-[atabook](https://junipilly.atabook.org/)
-
-
-![](https://komarev.com/ghpvc/?username=Junipilly&color=42a79c&style=plastic&label=PAWESOME+VIEWS)
-
-![WOLFIE](https://static.wikia.nocookie.net/cookierunkingdom/images/3/34/Cookie0044-idle_trans.gif/revision/latest?cb=20210831210737)
+![](https://komarev.com/ghpvc/?username=Junipilly&color=42a79c&style=plastic&label=FURBALLS)
 
 ![divider](https://pixelsafari.neocities.org/dividers/more/trees3.gif)
 
@@ -55,13 +47,11 @@ $\color{#3C8790}\textsf{𐂯 FANDOM FAVS 𐂯}$
 
 ✮ ⋆ ˚｡𖦹 ⋆｡°✩
 
-![anti](https://adriansblinkiecollection.neocities.org/g44.gif) ![s](https://adriansblinkiecollection.neocities.org/q1.gif) ![cat](https://adriansblinkiecollection.neocities.org/s3.gif) ![aj](https://adriansblinkiecollection.neocities.org/d1.gif) 
-
 ![banner](https://gifcity.carrd.co/assets/images/gallery48/70d22c38.png?v=3fc8f5cd)
 
-[Strawpage](https://junipilly.straw.page/) [Artfight](https://artfight.net/~Junipilly) [twitter](https://x.com/junipilly)
+[atabook](https://junipilly.atabook.org/)
+ [Strawpage](https://junipilly.straw.page/) [Artfight](https://artfight.net/~Junipilly) [twitter](https://x.com/junipilly)
 
-![dablinkie](https://pixelsafari.neocities.org/blinkies/dablinkie.gif) ![blinkk](https://adriansblinkiecollection.neocities.org/40.gif) ![bass](https://adriansblinkiecollection.neocities.org/e103.gif)
 
 ## MY ART + AUs 
 ![meow](https://pixels.crd.co/assets/images/gallery22/0bf32423.gif?v=29416114)
