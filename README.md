@@ -1,9 +1,6 @@
 <div align = "center">
 
 
-![b](https://adriansblinkiecollection.neocities.org/buttons/a101.jpg)
-
-### ✩
 
 <img width="2752" height="2064" alt="werewolfgithub" src="https://github.com/user-attachments/assets/8d30fd45-fa86-4f84-8b80-5e6070f20241" />
  
@@ -107,4 +104,7 @@ $\color{#1c65ad}\textsf{𐂯 FANDOM FAVS 𐂯}$
 ![wuuah](https://64.media.tumblr.com/d6a58a0ed37de161e5e9f5f5344c7c83/1b4e0eccec5e8bcf-45/s400x600/c0f30fc70edcae601a467568fe23ef0d2ef245ea.pnj) ![wiaij](https://64.media.tumblr.com/7e7d75d88d7975d121ca1358c4cdf335/1b4e0eccec5e8bcf-14/s400x600/65b38bbfa28b3cdbf0eab5ecfbb4853c4b199643.pnj)
 
 ![werewolf](https://adriansblinkiecollection.neocities.org/m10.gif) ![les](https://64.media.tumblr.com/1775039c2fe0288d3fae78cfd00a685f/27fd15063e81f2e1-14/s250x400/1d21a1a8b759daeafcc269f25c4a39e965d14b3e.gifv) ![aro](https://64.media.tumblr.com/c4a361e5a129d0fc7212a45c26431f19/27fd15063e81f2e1-e6/s250x400/eb8d07560e9e0775d3a1ff1f25f9caba90cd7c2b.gifv)
+
+![b](https://adriansblinkiecollection.neocities.org/buttons/a101.jpg)
+
 # ✩
